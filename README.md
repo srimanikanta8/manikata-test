@@ -1,1 +1,0 @@
-# manikata-test
